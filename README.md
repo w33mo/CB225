@@ -1,7 +1,12 @@
 # CB225
 
-I don't like People who dont like Animals
-I don't like Me
-I don't like Trash
-I don't like Alcohol
-I don't like Many People
+I like Animals
+I like Foods
+I like Motorcycle
+I like Beaches
+I like Mountains
+I like Playing Freesbie
+I like to travel
+I like eating
+I like Dog's
+I like Cats'
