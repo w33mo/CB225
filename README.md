@@ -1,3 +1,5 @@
 # CB225
 
-First Quiz
+Jamili, Rhey Mark
+Borres, Ronieric
+Lunzaga, John Lester
